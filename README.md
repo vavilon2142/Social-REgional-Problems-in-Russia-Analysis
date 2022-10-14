@@ -1,1 +1,1 @@
-# Social-REgional-Problems-in-Russia-Analysis
+# Social-Regional-Problems-in-Russia-Analysis
